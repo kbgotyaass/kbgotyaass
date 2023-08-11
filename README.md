@@ -1,5 +1,5 @@
 Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif)My name is Khi
-===========================================================================================================================New Coder---------* 🌍  I'm based in New York* ✉️  You can contact me at [hxt3r.business@gmail.com](mailto:hxt3r.business@gmail.com)* ⚡  I am spiderman.. Tell No One.
+=New Coder---------* 🌍  I'm based in New York* ✉️  You can contact me at [hxt3r.business@gmail.com](mailto:hxt3r.business@gmail.com)* ⚡  I am spiderman.. Tell No One.
 
 <a href="https://www.github.com/kbgotyaass" target="_blank" rel="noreferrer"><img
 src="https://img.shields.io/github/followers/kbgotyaass?logo=github&style=for-the-badge&color=0891b2&labelColor=1c1917" /></a><a href="https://www.twitch.tv/kurabakii" target="_blank" rel="noreferrer"><img
